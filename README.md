@@ -10,6 +10,9 @@
 
 ### Link nộp bài tập về nhà
 
+[https://forms.gle/3wh2jMsgKEAJHkc47](https://forms.gle/3wh2jMsgKEAJHkc47)
+
+Hạn chót 22h 1/12/2022
 
 #### Danh sách đạt điểm cộng trong bài tập trên lớp
 - 19521764  120/120 
